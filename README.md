@@ -11,7 +11,7 @@ Heya! this is kinda a placeholder but here you go:
 - Hopefully i can branch out into other coding ventures when i get the oppertunity
 - My goal is to work in the games industry to any degree possible, but i can't seem to specilize in any direction
 
-(banner illustrations and pfp by my lovely GF and based on Blizzard Entertainments "Overwatch")
+(banner illustrations and pfp by my lovely GF [DeadDiamond](https://www.twitch.tv/xdeaddiamondx) and based on Blizzard Entertainments "Overwatch")
 
 
 
